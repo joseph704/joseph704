@@ -15,4 +15,4 @@
 
 
 
-Click ☺️ => [노션 포트폴리오 링크](https://josephcha.notion.site/22e35f7f1eeb800d8c76e5521d28a44b?source=copy_link)
+Click ☺️ => [노션 포트폴리오 링크](https://josephcha.notion.site/22e35f7f1eeb80ccaca6e07661302f8b?source=copy_link)
